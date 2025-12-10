@@ -1,7 +1,7 @@
 # 👤 Author
 
-### Telegram: [Vladmeer](https://t.me/vladmeer67)   
-https://t.me/vladmeer67
+### Telegram: [Vladmeer](https://t.me/josephlopezh888)   
+https://t.me/josephlopezh888
 
-### Twitter: [Vladmeer](https://x.com/vladmeer67)   
-https://x.com/vladmeer67
+### Twitter: [Vladmeer](https://x.com/josephlopezh888)   
+https://x.com/josephlopezh888
